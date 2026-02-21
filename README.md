@@ -1,5 +1,5 @@
 # something
-i am in 230+ fandoms
+i am in 231+ fandoms
 
 a high chance i recognize your fandoms. 
 Please tell me if there are any fandoms that i might listed "double"
