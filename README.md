@@ -46,7 +46,7 @@ Please tell me if there are any fandoms that i might listed "double"
 40. utauloid, 
 41. minecraft, 
 42. dead by daylight, 
-43. grace, 
+43. ----problematic, 
 44. delusional, 
 45. prank your mom, 
 46. 99nitf, 
@@ -222,7 +222,7 @@ Please tell me if there are any fandoms that i might listed "double"
 216. a regect
 217. an abnormal ARG
 218. dark gathering
-219. pressure
+219. ----problematic
 220. doors
 221. a broken dream demo
 222. duality
